@@ -1,2 +1,2 @@
 # Azalea
-SUPER cringe individual!!!
+SUPER among individual!!!
